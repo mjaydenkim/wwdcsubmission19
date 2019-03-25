@@ -11,3 +11,10 @@ For years and years, since 2015 when I was a young kid, I would run home to watc
 I recorded a video of myself playing ReGest, here it is: https://www.youtube.com/watch?v=G4AFukITt_k&t=1s
 
 Thanks for checking out my project! Wish me luck!
+
+
+
+
+
+
+(Dude, look at that creative emoji use! I know, so amazing! Right?)
